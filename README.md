@@ -108,4 +108,4 @@ This Professional Certificate has a strong emphasis on applied learning. Except 
 - 
 ---
 
-© 2021 Coursera Inc. All rights reserved.
+© 2021 Coursera Inc. All rights reserved
